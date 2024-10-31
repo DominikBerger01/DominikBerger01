@@ -1,3 +1,3 @@
-**Interests**: Python, Django, Linux
+**Interests**: Python, Django, Java, Linux
 
 **Hobbies**: Fitness 🏋🏼‍♀️, Boxing 🥊, Learning 📚
